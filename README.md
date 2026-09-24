@@ -98,4 +98,4 @@ I'm currently focused on:
 
 **Portfolio:** https://elishakhizs.github.io/
 
-**LinkedIn:** [Your LinkedIn URL]
+**LinkedIn:** www.linkedin.com/in/elisha-oluwadayomi-693a23336
